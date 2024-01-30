@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @IT20072810
+- 👋 Hi, I’m @Kalana
 - 👀 I’m interested in UFO
 - 🌱 I’m currently learning alien language
 - 💞️ I’m looking to collaborate with aliens
